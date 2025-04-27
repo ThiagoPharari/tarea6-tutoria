@@ -14,10 +14,15 @@ Podría hablar con mis profesores para obtener consejos específicos sobre técn
 Completa el siguiente esquema de manera sincera:
 
 ✅ Objetivo académico:
-Ejemplo: mejorar mi capacidad para organizar tiempos de estudio.
+Mejorar mi ponderado este último año.
 
 💖 Objetivo emocional:
-Ejemplo: trabajar en mi confianza al participar en clases.
+Romper con mis miedos a la hora de hablar e interactuar con los demás.
 
 🌱 Objetivo de desarrollo personal:
-Ejemplo: desarrollar la constancia en mis compromisos.
+Fortalecer mi disciplina para cumplir con mis tareas en los tiempos establecidos, evitando la procrastinación.
+
+🧭 Parte 3: Ruta visual de crecimiento
+
+LINK: https://trello.com/invite/b/6807e67db3d67dd518d49c29/ATTIdfa8828bacaada8fb462daa44d799886F9CC4D28/mi-tablero-de-trello
+
